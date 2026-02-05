@@ -1,0 +1,2 @@
+# tryinggithub
+aku pemula bg
